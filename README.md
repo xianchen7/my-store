@@ -1,2 +1,2 @@
 # my-store
-for my mother
+for my mama
